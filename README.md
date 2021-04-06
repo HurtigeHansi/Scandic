@@ -1,2 +1,0 @@
-# Scandic
-Reviews
